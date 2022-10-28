@@ -1,0 +1,1 @@
+I'm so sorry but the weights files are too big for been uploaded here... If you want to check them you can contact me at carles.prego@gmail.com
